@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jackson25660
 - 👀 I’m interested in ...building and coding the new world
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...basic coding 
 - 💞️ I’m looking to collaborate on ...a new heaven on earth 
 - 📫 How to reach me ...Jacquelynoneil28@gmail.com 
 - 😄 Pronouns: ...
